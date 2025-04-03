@@ -1,7 +1,7 @@
 **∞ What The Buddha Taught:**
 
-https://ufile.io/1jyf5o2k
+https://tinyurl.com/yjfx97pm
 
 **∞ The Buddha's Teaching As It Is:**
 
-https://ufile.io/osrhg07l
+https://tinyurl.com/34ncrbc4
